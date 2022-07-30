@@ -1,3 +1,1 @@
-👋 I am Shariq Ahmed
-the Founder & CEO of Soaron
-Love to solve the problems of mankind and try to turn those solutions into highly profitable products.
+Founder and CEO of Soaron, I like to solve people's problems and try to turn these solutions into profitable products.
